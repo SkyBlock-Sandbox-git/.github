@@ -4,6 +4,7 @@
 * Bowswa / Owner
 * MoonLight / Owner / Editior of Devlogs
 * Mello / Developer / Amazing 
+* Pixeled / Beta Tester
 
 ## Productivity warning!
 You must work on this actively but not as active that you would get stressed, if you do get stressed immeditly DM a owner and we can give you time but if you are fine being active then you must work on this actively.
